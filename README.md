@@ -1,1 +1,3 @@
-heyo, my names alyssa. im a neogirl from pacoima. currently an upcoming v-tuber with a (subjective) beautiful voice
+I eat babies and program 18 hours a day
+Transfeminine
+19
