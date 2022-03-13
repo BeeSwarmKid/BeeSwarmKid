@@ -1,5 +1,7 @@
 # Hewwo!! I'm Linode! 🐱
 
+[Linode's Directory (Unblocked Games)](https://lin0de.github.io)
+
 I can code sometimes working projects.
 
 I am in 11th grade!
